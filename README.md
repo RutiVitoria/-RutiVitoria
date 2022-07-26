@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Ruti Vitóri     😁
+## Bem-vindo(a) ao perfil da Ruti Vitória  😁
 
  <div>
    <a href="https://github.com/RutiVitoria">
